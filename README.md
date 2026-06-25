@@ -106,5 +106,4 @@ As an aspiring Data Analyst with a solid foundation in business administration, 
 
 **Project Developed By:** Palak Tripathi | BBA Student | Aspiring Data & Business Analyst  
 
-Feel free to connect with me - https://www.linkedin.com/in/palak-tripathi-37a56234a/
 🤝 **Let's Connect:** Always open to collaborating with fellow data professionals—feel free to reach out via [LinkedIn](https://www.linkedin.com/in/palak-tripathi-37a56234a/) to discuss this analytics model or explore open opportunities!
